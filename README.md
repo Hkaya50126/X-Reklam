@@ -7,4 +7,4 @@ Hazırlayanlar:
 <br>• Mert ALIM ==> 192803078
 
 PREVIEW(Video için fotoğrafa tıklayın / for video please click the gif):
-<br>[![X-Reklam](img/video.gif)](https://youtu.be/LY2uTTf9IWg)
+<br>[![X-Reklam](img/video.gif)](https://youtu.be/FtQbojDobwo)
